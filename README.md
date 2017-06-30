@@ -1,2 +1,2 @@
 # lucky79mercy.github.io
-Web and Clothng
+Web and Clothing
